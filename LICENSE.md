@@ -1,4 +1,4 @@
-# 
+# Officiel geckoterminal sniper bot outils pour Mac OS | Mis à jour geckoterminal sniper bot outils pour PC Windows. Avec indexation de la blockchain et surveillance des transactions — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
